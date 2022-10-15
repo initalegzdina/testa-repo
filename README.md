@@ -1,0 +1,1 @@
+Šis ir mans komentārs 
