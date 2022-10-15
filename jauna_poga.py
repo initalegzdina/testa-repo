@@ -1,2 +1,1 @@
 Pirmā rinda
-Otrā rinda
